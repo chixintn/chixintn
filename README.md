@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @chixintn
+- 👀 I’m interested in manager software
